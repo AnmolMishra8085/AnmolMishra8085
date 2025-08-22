@@ -24,7 +24,7 @@ Welcome to my GitHub profile! I'm a beginner who has just started my journey in 
 ## 📫 How to Reach Me
 
 - **Email:** [anmolmishra362@gmail.com]
-- **LinkedIn:** [.......................]
+- **LinkedIn:** [https://www.linkedin.com/in/anmol-mishra-116615331?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BONjkKV69QsCsz8xe6DCBCw%3D%3D]
 
 ---
 
